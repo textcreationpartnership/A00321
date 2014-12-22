@@ -35,11 +35,45 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The psalme of mercy, or, A meditation vpon the 51. psalme by a true penitent.I. B.1625Approx. 246 KB
+
+1. TO MY REVEREND FRIEND Mr. IOHN DOVVNAME, Bachelar in Diuinity and Preacher of Gods Word.
+
 #####Body#####
 
+1. THE PSALME OF MERCY, OR A MEDITATION vpon the 51. Psalme, by a true Penitent.
+
+    _ THE ARGVMENT.
+
+    _ THE ANALYSIS or Resolution of the Psalme.
+
+1. A MEDITATION VPON THE PSALME of Mercy.
+
+    _ 1. Haue mercy, vpon me, O God, according to thy great mercy, and according to the multitude of thy tender compassions, blot out my transgressions.
+
+    _ 2. I know mine owne wickednesse, and my sinne is euer before me, or, my sinne is euer against me.
+
+    _ 5. 〈◊〉, I was conceiued in sinne. 6. Behold, thou louest Truth, &c.
+
+    _ 6. In the secret of my heart thou shalt teach me wisdome: or, Thou shalt teach the seacrets of wisdome in my heart, or hidden part.
+
+    _ 7 Purge me with Hysope, and I shall be cleane.
+
+    _ 7 Wash me, O Lord, and I shall be whiter then snow.
+
+    _ 12 Restore vnto mee, the ioy of thy saluation, and vphold mee with thy firme Spirit, or stablish mee with thy free Spirit.
+
+    _ 13 Then will I teach transgressors thy wayes, and sinners, or impious persons, shall be conuerted vnto thee.
+
+    _ 14 Deliuer me from bloud 〈◊〉, O Lord, thou that art the God of my saluation.
+
+    _ 15 Open thou my lips, O Lord, and, &c.
+
+    _ 18 O be fauourable to Sion, for thy good pleasure.
+
 #####Back#####
-The psalme of mercy, or, A meditation vpon the 51. psalme by a true penitent.I. B.1625Approx. 246 KB
+
+1. A SVMMARY PRAYER FRAMED OVT OF the Psalme, and Meditation together.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
